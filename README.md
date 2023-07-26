@@ -1,4 +1,4 @@
-Hi, I'm @jonahd99 and I am PhD student in Statistics at Loughborugh Univesity. 
+Hi, I'm @jonahd99 and I am PhD student in statistics at Loughborough University. 
 
 Publications:
 
